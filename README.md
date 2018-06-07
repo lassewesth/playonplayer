@@ -1,3 +1,3 @@
 # Play on Player
 
-43 pts!
+it is a sweep
