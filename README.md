@@ -17,3 +17,5 @@ gold
 comedy
 
 skog
+
+solo
