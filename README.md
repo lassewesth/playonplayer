@@ -19,3 +19,5 @@ comedy
 skog
 
 solo
+
+yagni
