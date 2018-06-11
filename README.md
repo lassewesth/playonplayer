@@ -21,3 +21,5 @@ skog
 solo
 
 yagni
+
+beg
