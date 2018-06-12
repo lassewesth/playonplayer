@@ -4,30 +4,4 @@
 
 KD DA GOAT!
 
-sweep sweep
-
-what the
-
-dead end?
-
-interfaces++
-
-gold
-
-comedy
-
-skog
-
-solo
-
-yagni
-
-beg
-
-crap
-
-futte
-
-keep it going
-
-suuurp?!
+lick
