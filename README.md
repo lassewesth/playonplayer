@@ -4,12 +4,4 @@ it is a sweep
 
 glover
 
-donald
-
-tedius
-
-yoni
-
-tutti frutti
-
-shizzle
+korea
