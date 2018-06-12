@@ -4,4 +4,4 @@
 
 KD DA GOAT!
 
-lick
+luck
